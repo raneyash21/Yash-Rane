@@ -1,4 +1,4 @@
-# 👋 Myself [Your Name]
+# 👋 Myself Yash Rane
 
 🎓 **Branch:** B.Tech-Aerospace Engineering  
 📍 **University:** VIT Bhopal University  
